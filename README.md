@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Riz
+- 👀 I’m interested in freelancer projects
+- 🌱 I’m currently doing partial work as freelancer that need to enhance.
+- 💞️ I’m looking to collaborate on many more projects
+- 📫 reach me on Whats'up +92-345-7281327, rizwanzafar337@gmail.com and on my upwork profile: https://www.upwork.com/freelancers/~01674093d59cd3ee7c 
